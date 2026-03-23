@@ -8,5 +8,5 @@
 
 > komposisi yang disediakan oleh alam dan manusia merekonstruksi komposisi yang disesuaikan sendiri untuk memperoleh komposisi yang sesuai dengan kebutuhan<br>
 
-> orang yang rialistis adalah orang yang terbiasa menangani berbagai kesulitan, bukti dia terbiasa adalah tidak cukup lama bertahan dalam kesendirian
+> orang yang rialistis adalah orang yang terbiasa menangani berbagai kesulitan, bukti dia tidak terbiasa adalah tidak cukup lama bertahan dalam kesendirian
 
