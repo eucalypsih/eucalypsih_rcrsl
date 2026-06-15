@@ -60,7 +60,7 @@ persepsi, pelit
 > siapapun yang mau menyayangi
 <br>
 
-> berdiri salah, duduk salah ... istilah laki2 serba salah ... [work] alat berat gudang
+> berdiri salah, duduk salah ... sangat [relate] dengan istilah laki2 serba salah ... [work] alat berat gudang
 <br>
 
 
