@@ -50,22 +50,23 @@
 <br>
 
 
-- laki mandiri secara mental
-persepsi
-- pelit
+> laki mandiri secara mental
+persepsi, pelit
 <br>
 
-
-- merasa bersalah apabila seseorang bungkam
+> merasa bersalah apabila seseorang bungkam
 <br>
 
-- siapapun yang mau menyayangi
+> siapapun yang mau menyayangi
 <br>
-
-
 
 > berdiri salah, duduk salah ... istilah laki2 serba salah ... [work] alat berat gudang
 <br>
+
+
+
+
+
 
 
 
