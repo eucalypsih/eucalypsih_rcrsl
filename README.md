@@ -64,8 +64,8 @@ persepsi
 
 
 
-
-
+> berdiri salah, duduk salah ... istilah laki2 serba salah ... [work] alat berat gudang
+<br>
 
 
 
