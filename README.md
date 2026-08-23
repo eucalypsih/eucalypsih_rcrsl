@@ -63,6 +63,7 @@ persepsi, pelit
 > berdiri salah, duduk salah ... sangat [relate] dengan istilah laki2 serba salah ... [work] alat berat gudang
 <br>
 
+> genetik seorang pejuang, lebih dari sekedar gotong royong
 
 
 
