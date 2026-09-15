@@ -65,7 +65,7 @@ persepsi, pelit
 
 > genetik seorang pejuang, lebih dari sekedar gotong royong
 
-
+> marketing > agama > dagang > pertukaran
 
 
 
