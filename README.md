@@ -67,7 +67,7 @@ persepsi, pelit
 
 > marketing > agama > dagang > pertukaran
 
-
+> selama mematuhi aturan dasar dari suatu sistem, siapapun bebas mensabotase
 
 
 
