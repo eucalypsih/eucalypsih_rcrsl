@@ -69,6 +69,7 @@ persepsi, pelit
 
 > selama mematuhi aturan dasar dari suatu sistem, siapapun bebas mensabotase
 
+> diperhatikan oleh orang berpengaruh
 
 
 <br>
